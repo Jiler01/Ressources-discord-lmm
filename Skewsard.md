@@ -14,7 +14,7 @@ N'hésitez pas si vous avez en tête des ajouts potentiels intéressants.
 
 ## Livres/PDF
 
-[Polycopié rentrée CPGE LLG/H4]5https://www.louislegrand.fr/wp-content/uploads/2022/01/EXOS-TERMINALE3-3-AVECDESSIN.pdf)
+[Polycopié rentrée CPGE LLG/H4](https://www.louislegrand.fr/wp-content/uploads/2022/01/EXOS-TERMINALE3-3-AVECDESSIN.pdf)
 [Corrigé du polycopié](https://wikiprepa.fr/wp-content/uploads/Correction_Poly_Transition_Prepa_LLG_H4.pdf)
 Rq: surtout utile pour préparer la rentrée, l'intérêt diminue après.
 
